@@ -1,4 +1,4 @@
 hello my name is tarush
-my name is tarush chauhan
+my name is tarush
 (tarush bai)
 
